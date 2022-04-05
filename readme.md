@@ -13,6 +13,6 @@ ___
 ### Sobre mí
 
 - Me gusta dormir siesta y jugar a la computadora.
-- Escucho musica variada (de todo un poco). Mi artista favorito actualmente es Dillom.
-- Tengo una gatita que se llama Bruschetta. 
+- Escucho musica variada (de todo un poco). Mi artista favorito actualmente es [Dillom](https://www.youtube.com/channel/UC4WtxZGX1qqHx5JnSy1SKCw).
+- Tengo una gatita que se llama Bruschetta (les dejo [fotos](https://photos.app.goo.gl/CiH4eEmcqcC65p8PA)). 
 - Comida favorita: Milanesa con puré.
